@@ -1,1 +1,0 @@
-# static-meme-web-page-
